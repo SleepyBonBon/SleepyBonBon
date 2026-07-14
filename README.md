@@ -1,4 +1,5 @@
-(https://pin.it/2LE8bgFKm)
+![Uploading image.gif…]()
+
 
 <!--
 **SleepyBonBon/SleepyBonBon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
