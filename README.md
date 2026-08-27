@@ -1,18 +1,25 @@
 <img width="606" height="442" alt="image" src="https://github.com/user-attachments/assets/6127d984-5c32-4bd4-bf8e-b476e80eac26" />
+        
+        ໒꒰ྀི๑→ ༝ •๑꒱ྀི১ some inf about me :
+        
+ _ introvert, an easy- going person .
+ _ play nice, but won’t go soft !
+ _ taken by doah 🍊
+
+    𝜗𝜚﹕ ・┈・┈・┈  ૮꒰◞ ˕ ◟ ྀི꒱ა pink list ┈・┈・┈・ 𝜗𝜚﹕
+          _ @tianlogn 
+                  _ @xstardustinvoid
+          _ @baurbyte 
+                  _ @oceanwhisperx
+
+         
+                                end.  ╱|、
+                                     (˚ˎ 。7  
+                                      |、˜〵   
+                                      じしˍ,)ノ
+ 
 
 
 
-<!--
-**SleepyBonBon/SleepyBonBon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
